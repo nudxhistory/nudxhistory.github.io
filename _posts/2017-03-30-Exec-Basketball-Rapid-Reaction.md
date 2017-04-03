@@ -1,5 +1,5 @@
-PAHUTSKI LEADS NEW EXEC TO CONVINCING VICTORY
-By Ben Pope
+### PAHUTSKI LEADS NEW EXEC TO CONVINCING VICTORY
+#### By Ben Pope
 
 EVANSTON — A dominant performance by Bill Pahutski powered New Exec to a dominant 44-25 win over Old Exec on Thursday, further emphasizing the excellence of Delta Chi in all aspects of athletic performance.
 
