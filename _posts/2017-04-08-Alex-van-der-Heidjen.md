@@ -1,6 +1,6 @@
 # Alex VDH
 
-![vdh](/Images/IMG_3576.JPG)
+![vdh](/Images/IMG_3576.jpg)
 
 <br>
 
